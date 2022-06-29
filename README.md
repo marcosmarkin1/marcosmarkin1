@@ -1,0 +1,1 @@
+ola meu nome e marcos, gosto de rede sociais meu insta:marcos_markin1,tenho 17 anos,moro em ponta grossa atualmente vim de curitiba, estudo no colegio estadual polivalente, eu estou aprendendo muitas coisas no alura
